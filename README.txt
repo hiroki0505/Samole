@@ -1,2 +1,4 @@
 Hello World
 gggggo
+hirokinotakugaki
+rakugakidaisuki
